@@ -1,0 +1,1 @@
+Ingredients: Carrot, Spring onion, Onion, Beans, Capsicum, Basmati Rice, Salt, Pepper, Soya Sauce, Ginger garlic paste, water and Cooking oil.
